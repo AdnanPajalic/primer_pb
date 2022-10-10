@@ -3,3 +3,5 @@
 Moj projekt za PD 
 
 Adnan Pajalic
+
+Spreminjam zadeve oh spremeemememe
